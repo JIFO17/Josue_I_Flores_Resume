@@ -32,7 +32,7 @@ Construction Safety Supervisor and Construction Assistant	November 2016 – Octo
 •	Managed safety protocols for workers at heights, having 0 accidents__
 
    __Alumni Engagement Coordinator					      April 2022 – Present
-    Brigham Young University – Idaho					      Rexburg, ID, USA
+    Brigham Young University – Idaho					      Rexburg, ID, USA 
 •	Generated connections with Alumni and BYU-I, having involved alumni mentoring students. 
 •	Created new data from the database, which improved the way the school contacts and works with
 Specific Alumni Characteristics__
